@@ -8,7 +8,7 @@
 
 Email: bryancarney1@gmail.com
 
-[LinkedIn](https://www.linkedin.com/in/bryan-l-carney/)
+LinkedIn: [click here](https://www.linkedin.com/in/bryan-l-carney/)
 
 > Languages and Tools:
 
