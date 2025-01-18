@@ -1,8 +1,8 @@
 # Bryan Carney
 
-I’m currently working as a Senior Manager in Data Insights and Strategy Enablement for RBC  
+### Senior Manager - Data Insights and Strategy Enablement for RBC  
 
-Currently enrolled in University of Toronto learning Data Analytics and Visualizations
+### Currently enrolled in University of Toronto learning Data Analytics and Visualizations Course 
 
 > Connect with me:
 
