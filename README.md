@@ -2,7 +2,7 @@
 
 ### Senior Manager - Data Insights and Strategy Enablement for RBC  
 
-### Currently enrolled in University of Toronto learning Data Analytics and Visualizations Course 
+### Currently enrolled in University of Toronto Data Analytics and Visualizations Course 
 
 > Connect with me:
 
