@@ -1,8 +1,8 @@
 # Bryan Carney
 
-### Senior Manager - Data Insights and Strategy Enablement for RBC  
+### Senior Manager - Data Insights and Strategy Enablement at RBC  
 
-### Currently enrolled in University of Toronto Data Analytics and Visualizations Course 
+### Currently enrolled in University of Toronto for Data Analytics and Visualizations 
 
 > Connect with me:
 
