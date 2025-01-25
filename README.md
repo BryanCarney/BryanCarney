@@ -12,5 +12,6 @@ LinkedIn: [click here](https://www.linkedin.com/in/bryan-l-carney/)
 
 > Languages and Tools:
 
-![image](https://github.com/user-attachments/assets/cff15a46-56eb-4c15-8ce6-7f13319e04e4)
+![image](https://github.com/user-attachments/assets/d7ce9efc-f27b-4a2f-a7b6-0772e2975b78)
+
 
